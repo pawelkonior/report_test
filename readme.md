@@ -17,3 +17,5 @@ hacked!!! PK
 hacked again!
 DP
 hacked PZ
+powtorka z przerobionego materialu x1
+
